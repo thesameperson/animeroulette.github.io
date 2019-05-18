@@ -1,2 +1,0 @@
-# animeroulette.github.io
-рулетка
